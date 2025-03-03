@@ -1,4 +1,4 @@
-# 🐔 **Chicken Road Spel** 🎰
+# 🐔 **Chicken Road Nederland** 🎰
 ![Chicken Road Game](https://res.cloudinary.com/dzwk5oovk/image/upload/v1733743979/EMD/chicken-road/chicken-road-game_yqoslq.png)
 [**>> PROBEER CHICKEN ROAD NU ! <<**](https://fspace.link/register)
 
